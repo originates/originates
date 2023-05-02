@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# Account Redirect, Please visit: [github.com/RichKMLS](https://github.com/RichKMLS)
+# I changed my username! Please visit: [github.com/RichKMLS](https://github.com/RichKMLS)
 This account was created to reserve my original username 'originates'. 
 
 Have a great day!
